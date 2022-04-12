@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @VALE1824
 - 👀 I’m interested in Human Resources, Psychology and Feminism.
-- 🌱 I’m currently learning Data Analysis and readying books about feminism/human rights.
+- 🌱 I’m currently learning Data Analysis basics. I'm really intereted in feminism/human rights that's why I constantly read books about it.
 - 📫 How to reach me https://www.linkedin.com/in/valentina-jaramillo-6b386622b/ follow me in Linkedin if you are interested in work for the bast Tech companys in the USA and Canada.
 
 <!---
